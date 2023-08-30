@@ -1,1 +1,0 @@
-# Dtsudo-Queen-Sacrifice-Bot
